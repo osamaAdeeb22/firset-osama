@@ -4,5 +4,5 @@
 
 ## Screenshots
 
-![App Screenshot](https://twitter.com/RM4Arab/status/1746843997954297925)
+![App Screenshot](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftwitter.com%2FRM4Arab%2Fstatus%2F1746843997954297925&psig=AOvVaw1ksVT0VZK4Yv_YbdO1WglD&ust=1705603440010000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJDZsMOK5YMDFQAAAAAdAAAAABAP)
 
